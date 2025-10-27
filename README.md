@@ -1,5 +1,3 @@
-
-
 <p align="center">
 𓆞⠀࿐◟⠀𓂃 ׁㅤ⭒</p>
 <p align="center">
@@ -19,7 +17,18 @@
 <img width="120" src="https://64.media.tumblr.com/a760b9faa011cde3a24cee4c33f39074/0d9c08ed8003adc6-43/s100x200/7b14613d0f361c68d67feaaa49f04cc89cdd0f25.webp" alt=yes>
 </p>
 
+<p align="center">
+𐙚⠀⠀c+h⠀⠀Shᵉ⠀⠀♀⠀⠀¹⁶⠀ᴹᵉᵒʷ⠀+⠀꠹ᭂ</p>
+
 <P align="center">
 <img width="450" src="https://64.media.tumblr.com/191ee9748a681df25f2c2ce0110217be/ac2d1016cc2f5479-aa/s2048x3072/2c2da0c343911155ffabb9edda65c3751585e2c0.pnj">
 </P>
+
+
+
+
+
+<p align="center">
+<img src="https://komarev.com/ghpvc/?username=melanchoir&color=fbdee2&style=plastic&label=&nbsp♡&nbsp" />
+</p>
 
