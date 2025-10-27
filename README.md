@@ -1,4 +1,6 @@
 <p align="center">
+VIEW   IN   LIGHT   MODE !</p>
+<p align="center">
 𓆞⠀࿐◟⠀𓂃 ׁㅤ⭒</p>
 <p align="center">
 アン𓇼⠀⠀.ᵣₑₐdₘₑ⠀／<3⠀melanchoir</p>
@@ -18,13 +20,18 @@
 </p>
 
 <p align="center">
-𐙚⠀⠀c+h⠀⠀Shᵉ⠀⠀♀⠀⠀¹⁶⠀ᴹᵉᵒʷ⠀+⠀꠹ᭂ</p>
+𐙚⠀⠀87⠀⠀%⠀⠀Shᵉ⠀⠀♀⠀⠀¹⁶⠀ᴹᵉᵒʷ⠀+⠀꠹ᭂ</p>
 
 <P align="center">
 <img width="450" src="https://64.media.tumblr.com/191ee9748a681df25f2c2ce0110217be/ac2d1016cc2f5479-aa/s2048x3072/2c2da0c343911155ffabb9edda65c3751585e2c0.pnj">
 </P>
 
-
+<p align="center">
+haye !! c+h & ints are SOSOSO WELCOME ... i SWEAR i don't bite !! :'3 </p>
+<p align="center">
+no dni , just don't be weird n we're GOODS !! ^_< </p>
+<p align="center">
+please do read my rentry/strwpg before int !! </p>
 
 
 
