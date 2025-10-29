@@ -32,7 +32,7 @@ haye !! c+h & ints are SOSOSO WELCOME ... i SWEAR i don't bite !! :'3 </p>
 <p align="center">
 no dni , just don't be weird n we're GOODS !! ^_< </p>
 <p align="center">
-please do read my rentry/strwpg before int !! </p>
+please do read my rentry/strwpg/prns before int !! </p>
 
 
 
