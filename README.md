@@ -41,3 +41,7 @@ i have an inconsistent style TT </p>
 <img src="https://komarev.com/ghpvc/?username=melanchoir&color=fbdee2&style=plastic&label=&nbsp♡&nbsp" />
 </p>
 
+me and my friend's pixels got stolen ,, PLEASE REPORT [THEM](https://pin.it/83GsP4lzZ)
+
+![](https://i.ibb.co/xtYD2VXB/Untitled688-20251112201721.png)
+
