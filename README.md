@@ -30,9 +30,11 @@ haye !! c+h & ints are SOSOSO WELCOME ... i SWEAR i don't bite !! :'3 </p>
 <p align="center">
 no dni , just don't be weird n we're GOODS !! ^_< </p>
 <p align="center">
-please do read my rentry/strwpg/prns before int !! </p>
+please do read my rentry/prns before interacting !! </p>
 <p align="center">
 i'm usually always offtb, so w2i is very appreciated ^_^ </p>
+<p align="center">
+do not copy/post my ponies w/o perms,, ask to take inspo pls T_T </p>
 
 
 <p align="center">
