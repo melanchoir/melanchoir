@@ -39,3 +39,7 @@ do not copy/post my ponies w/o perms,, ask to take inspo pls T_T </p>
 <img src="https://komarev.com/ghpvc/?username=melanchoir&color=fbdee2&style=plastic&label=&nbsp♡&nbsp" />
 </p>
 
+<p align="center">
+<img src="https://cdn.discordapp.com/attachments/1431284053302313015/1439593755408597153/IMG-20251116-WA0006.jpg?ex=691b15a9&is=6919c429&hm=002e81aa954fa63840b7c30c9fcf4011b9267304920996aa90c827deb127a3e3&" />
+</p>
+
