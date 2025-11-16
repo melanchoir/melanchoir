@@ -1,7 +1,5 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=5akiv1fuefshgjrvrmpcri13r&cover_image=true&theme=natemoo-re&show_offline=false&background_color=ffffff&interchange=false&profanity=false&bar_color=ffbad1&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=5akiv1fuefshgjrvrmpcri13r&redirect=true)
 <p align="center">
-VIEW   IN   LIGHT   MODE !</p>
-<p align="center">
 𓆞⠀࿐◟⠀𓂃 ׁㅤ⭒</p>
 <p align="center">
 アン𓇼⠀⠀.ᵣₑₐdₘₑ⠀／<3⠀melanchoir</p>
@@ -40,8 +38,4 @@ i'm usually always offtb, so w2i is very appreciated ^_^ </p>
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=melanchoir&color=fbdee2&style=plastic&label=&nbsp♡&nbsp" />
 </p>
-
-[me and my friend's ponies got stolen](https://pin.it/83GsP4lzZ)
-
-![](https://i.ibb.co/xtYD2VXB/Untitled688-20251112201721.png)
 
