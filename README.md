@@ -34,14 +34,14 @@ no dni , just don't be weird n we're GOODS !! ^_< </p>
 <p align="center">
 please do read my rentry/strwpg/prns before int !! </p>
 <p align="center">
-i have an inconsistent style TT </p>
+i'm usually always offtb, so w2i is very appreciated ^_^ </p>
 
 
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=melanchoir&color=fbdee2&style=plastic&label=&nbsp♡&nbsp" />
 </p>
 
-me and my friend's pixels got stolen ,, PLEASE REPORT [THEM](https://pin.it/83GsP4lzZ)
+[me and my friend's ponies got stolen](https://pin.it/83GsP4lzZ)
 
 ![](https://i.ibb.co/xtYD2VXB/Untitled688-20251112201721.png)
 
