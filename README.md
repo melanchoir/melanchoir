@@ -32,7 +32,7 @@ no dni , just don't be weird n we're GOODS !! ^_< please do read my rentry/prns 
 <p align="center">
 i'm usually always offtb, so w2i is very appreciated ^_^ </p>
 <p align="center">
-do not copy/post my ponies w/o perms,, ask to take inspo pls T_T </p>
+do not copy/post my ponies w/o perms (u kno who u r,,) ask to take inspo pls T_T </p>
 <p align="center">
 i also tend to experiment w my style a lot, lmk if similar !! </p>
 
