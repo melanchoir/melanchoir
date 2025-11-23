@@ -7,7 +7,7 @@
 
 
 <p align="center">
-A HUGE THANK YOU to everypony who greeted me on this special day 🥹 love each n every one of you so much !! sendin lots of love, hugs, n kisses !! MWA !! </p>
+A HUGE THANK YOU to everypony who greeted me on this special day 🥹 i HEART each n every one of you so much !! sendin lots of love, hugs, n kisses !! MWA !! </p>
 
 
 <p align="center">
